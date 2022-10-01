@@ -4,4 +4,4 @@
 
 > Get busy living or get busy dying. — Stephen King.
 
-> The purpose of our lives is to be happy. — Dalai Lama.
+> Be yourself, everyone else is already taken. - Oscar Wilde
